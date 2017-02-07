@@ -4,4 +4,5 @@ mvmtwatches.com/collections/all-mens-watches?utm_medium=cpc1&utm_source=Facebook
 watchbandit.com/products/watches.
 
 magaisland.is/urin-okkar.
-barbasandzacari.com/pages/watches
+
+barbasandzacari.com/pages/watches.
